@@ -1,0 +1,1 @@
+# ABBYY-FINERREADER-2022-Premium
